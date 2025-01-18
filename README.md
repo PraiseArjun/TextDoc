@@ -1,2 +1,2 @@
 # TextDoc
-Just a readme
+☘️🍀 SEMOGA HARI INI BIG WIN 🍀☘️
